@@ -57,3 +57,6 @@
 در کیف پول من سورس آن قابل مشاهده هست و همچی شفاف هست
 
 (https://wallet.vicom96068.workers.dev/xrp)
+
+جهت حمایت مالی آدرس ریپل(xrp) من
+rpejjvQbyz7nACDNJ6hbC83rHtLrviRfJM
